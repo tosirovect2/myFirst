@@ -1,3 +1,3 @@
  # Naslov
 
-woo fucking hooooo
+woo hooooo
